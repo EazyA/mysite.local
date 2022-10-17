@@ -1,1 +1,1 @@
-https://disk.yandex.ru/d/x-tgNkbv0rb7XQ
+https://cloud.mail.ru/public/ZSS7/9osjggPUv
