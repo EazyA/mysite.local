@@ -1,3 +1,1 @@
-# mysite.local
-site
-ya.ru
+https://ya.ru
